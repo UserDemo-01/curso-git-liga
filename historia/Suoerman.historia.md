@@ -1,0 +1,4 @@
+# Historia de Superman
+Superman (en español: Superhombre) es un superhéroe ficticio que apareció por primera vez por Action Comics, perteneciente al grupo de cómics estadounidenses publicados por DC Comics.1​2​3​4​ El personaje fue creado por el escritor estadounidense Jerry Siegel y el artista canadiense Joe Shuster, y debutó en el cómic Action Comics #1 (fecha de portada: junio de 1938 y publicado el 18 de abril de 1938),5​cuando ambos se encontraban viviendo en Cleveland, Ohio. Superman ha sido adaptado a varios otros medios, que incluyen seriales de radio, novelas, películas, programas de televisión, teatro y videojuegos.
+
+Superman nació en el planeta ficticio Krypton y recibió el nombre de nacimiento Kal-El. Cuando era un bebé, sus padres, el científico Jor-El y su esposa Lara Lor-Van, lo enviaron a la Tierra en una pequeña nave espacial momentos antes de que Krypton fuera destruido en un cataclismo natural. Su nave aterrizó en el campos
