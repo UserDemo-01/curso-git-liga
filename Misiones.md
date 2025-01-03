@@ -5,4 +5,4 @@
 3. Buscar nuevos miembros
 4. Comer mucho para salvar el mundo
 5. Hacer un reconocimiento del terreno
-6. Misione nueva agregada
+6. Investigar los planes de Deatshot
