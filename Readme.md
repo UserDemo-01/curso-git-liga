@@ -1,4 +1,4 @@
-# Objetivos de la liga de la justicia
+# Objetivos principales
 
 Este es un repositorio de la liga de la justicia.
 
