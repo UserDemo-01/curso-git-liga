@@ -6,4 +6,3 @@
 4. Mujer Maravilla
 5. Linterna Verde
 6. Robbin
-7. Volcan verde!!
